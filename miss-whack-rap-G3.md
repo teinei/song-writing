@@ -52,8 +52,3 @@ Got the whole city scared but they all want her back
 Miss Whack, Miss Whack — face the truth, face the facts  
 Once she puts that Whack on you… there ain’t no coming back  
 
----
-
-This version uses very easy, short words so anyone can understand. It still keeps the fun rap energy and rhythm.  
-
-Want me to make it even simpler, add more lines, or change anything? Just tell me!
